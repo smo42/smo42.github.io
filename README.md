@@ -1,1 +1,1 @@
-# smo42.github.io
+# coming soon
